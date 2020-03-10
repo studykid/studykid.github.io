@@ -1,1 +1,11 @@
-# 如果不是真的喜欢，谁会愿意当舔狗呢
+# Hello darkness my old friend 
+
+# I've come to talk with you again 
+
+# Because a vision softly creeping 
+
+# Left the seeds while I was sleeping
+
+# And the vision that was planted in my brain 
+
+# Still remains within the sound of silence 
